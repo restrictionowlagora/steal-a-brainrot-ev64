@@ -1,4 +1,4 @@
-
+Get ahead in steal a brainrot with custom Script for steal a brainrot, featuring god mode and no clip. Download now to dominate every match with ease and confidence, thanks to its
 
 
 
